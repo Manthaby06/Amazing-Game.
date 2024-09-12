@@ -1,0 +1,1 @@
+Those who have a strong sense of why they are doing their work are more effective and more efficient in everything they do. It is important to understand your work.
